@@ -1,0 +1,2 @@
+# AntiScamGuardian2
+gafafa
